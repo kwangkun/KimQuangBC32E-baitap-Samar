@@ -1,2 +1,2 @@
 # KimQuangBC32E-baitap-Samar
-Nộp bắng ggDrive
+Nộp bằng ggDrive rồi @@
